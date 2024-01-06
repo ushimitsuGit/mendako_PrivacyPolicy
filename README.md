@@ -1,0 +1,1 @@
+# mendako_PrivacyPolicy
